@@ -2,7 +2,7 @@
 
 *Pronuncia-se re-NÁ-li.*
 
-🎓 **Mestre em Administração | Graduanda em Análise e Desenvolvimento de Sistemas — PUC Minas**
+🎓 **Mestre em Administração - UFCG | Graduanda em Análise e Desenvolvimento de Sistemas — PUC Minas**
 
 Sou uma profissional em transição de carreira para a tecnologia, com experiência no setor bancário, gestão financeira e processos de negócios.
 
